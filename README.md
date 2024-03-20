@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading, movies, serieses and starting new hobbies.
 - 🌱 I’m currently learning software development.
 - 💞️ I’m looking to collaborate on any projects.
-- 📫 How to reach me ...
+- 📫 How to reach me chueukeutlwilekokeso@gmail.com or 0685211170
 - 😄 Pronouns: she / her.
 - ⚡ Fun fact: i have sailed from False Bay to Durban.
 
